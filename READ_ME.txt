@@ -1,4 +1,4 @@
-Griffin Shea - 101082400 - griffin.shea@carleton.ca
+Griffin Shea
 
 
 
